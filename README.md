@@ -1,2 +1,2 @@
 sunday he/him i love sunday
-lucifer dni xD
+still figuring this out
